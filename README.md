@@ -1,5 +1,5 @@
-These...
-Are The Stuff I Used To Work On Inb4.
-Hopefully I Do Not Burnout Forever.
+These Are The Stuff I Used To Work On Inb4.
+**Burned Out Recently**
+*Hopefully Not Forever.*
 
-SHAWN SIT
+*Shawn Sit*
